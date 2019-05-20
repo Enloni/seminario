@@ -1,11 +1,11 @@
-Paneles solares en
-dispositivos móviles
+                    Paneles solares en
+                    dispositivos móviles
 
-López Nicolás Enrique
+                   López Nicolás Enrique
 
 
-Asesor: Arturo Negrete Medellín
+               Asesor: Arturo Negrete Medellín
 
-Universidad Politécnica
-de Tulancingo
+                   Universidad Politécnica
+                      de Tulancingo
 
