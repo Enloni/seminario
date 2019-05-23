@@ -1,4 +1,4 @@
-                    Paneles solares en
+                     Paneles solares en
                     dispositivos móviles
 
                    López Nicolás Enrique
